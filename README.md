@@ -1,0 +1,2 @@
+# discordbotthing
+adagdafqerqrcfzdfasdfredgv fsdv
